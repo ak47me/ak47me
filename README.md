@@ -36,7 +36,7 @@
 
 ### 🤝 Let’s Connect!
 
-- [LinkedIn](https://www.linkedin.com/in/abdulkadar) | [GitHub](https://github.com/abdulkadar) | [Personal Portfolio](https://abdulkadartaher.netlify.app/)
+- [LinkedIn](https://www.linkedin.com/in/abdulkadar) | [Personal Portfolio](https://abdulkadartaher.netlify.app/)
 
 ### ⚡ Fun Fact
 
